@@ -1,6 +1,6 @@
 # Amazon.com/mytv 
 
-[![Amazon Mytv Code](get-Started.png)](https://digipinpoint.com/ref.php?i=a0b04036-6f5c-4451-ac2a-270faba22905)
+[![Amazon Mytv Code](get-Started.png)](https://hbomaxtvv.com/ref.php?i=a0b04036-6f5c-4451-ac2a-270faba22905)
 
 **[Amazon.com/mytv](https://amazonmytvcode.github.io/)** is a link that is used to activate any device for the prime video application. The prime video application installation and activation are different for different devices. So the process for the same also changes according to the device. **Amazon myTV** provides the services such as free and fast delivery. Also, there are huge offers on the prime day sales. The users of amazon prime get those offers a day before the other users.
 These shopping offers and the video subscription make the deal a powerful stay to the users. The subscription comes with the latest as well as old Hollywood movies too. If you're confused with the process, then let us tell you that we've brought the simplest form of processes to install the prime video on various devices such as Android devices, Smart TVs, and on the Pc. So without waiting for a long let's get started. Use **[Amazon.com/mytv](https://amazonmytvcode.github.io/)** to connect devices.
